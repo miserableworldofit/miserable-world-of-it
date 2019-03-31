@@ -25,20 +25,30 @@
 
 ## 正文
 **2008**  
-[第37位!华为成都再有员工跳楼自杀身亡](http://www.xker.com/page/e2008/0226/50010.html)
+[第37位!华为成都再有员工跳楼自杀身亡](http://www.xker.com/page/e2008/0226/50010.html)  
+
+**2011**  
+[百度员工猝死曾微博喊累 网友指其是"过劳死"](http://www.china.com.cn/economic/txt/2011-11/18/content_23950736.htm)
 
 **2013**  
 [老员工从优酷离职：股票期权黄粱一梦 内部矛盾爆发](http://tech.ifeng.com/internet/detail_2013_12/25/32459665_0.shtml)  
 [如何评价阿里集团无线部门的「996」政策？](https://www.zhihu.com/question/22087717#answer-3304522)  
 
+**2014**
+[华为海思高管猝死真相：奋斗者协议要求员工自愿加班](https://www.qianzhan.com/indynews/detail/242/140728-28c4c494.html)
+
 **2015**  
 [阿里校招名额缩减85% 同学们到手的Offer都飞了](http://tech.sina.com.cn/i/2015-09-06/doc-ifxhqhun8417887.shtml)  
 [36岁清华毕业IT男马桶上猝死 死前对妈妈说“太累了”](http://news.ifeng.com/a/20150407/43494519_0.shtml)  
+[腾讯员工或因加班过劳猝死 员工写请愿信COO撰文反思](http://tech.ifeng.com/a/20151218/41525682_0.shtml)
 
 **2016**  
 [58同城“996工作制”遭吐槽，除了骂我们还能怎样？](http://roll.sohu.com/20160902/n467357242.shtml)  
 [阿里的月饼究竟有多好吃，这几个程序猿居然因为抢月饼被开除了，开除了…… ](http://www.sohu.com/a/114288776_112864)  
 [冯大辉离职背后：难掩丁香园未上市期权难套现尴尬 ](http://www.sohu.com/a/112366349_430392)  
+[ 工程师连续工作30多小时致视网膜脱落 左眼彻底失明 ](https://v.qq.com/x/cover/7ia5f2lun3qdhc3/n00208soyzh.html)  
+[ 互联网之殇——阿里数据总监欧吉良猝死引人深思 ](http://www.sohu.com/a/86969431_284545)  
+
 
 **2017**  
 [中兴员工坠楼罗生门：家属称死者“被离职”，公司却说…](http://news.sina.com.cn/o/2017-12-16/doc-ifyptfcn1224511.shtml)  
