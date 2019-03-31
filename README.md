@@ -61,6 +61,7 @@
 [期权缩水惹争议，蘑菇街陈琪：没义务对任何人财富自由的期望负责 ](http://www.sohu.com/a/284190466_121417)  
 [高通华裔工程师跳楼自杀！中年IT男，为何这么难？](http://www.sohu.com/a/238709532_487482)  
 [从腾讯总监被判9年 看互联网巨头近年来的反腐手段 ](http://www.sohu.com/a/102010031_386270)  
+[如何看待2018哔哩哔哩年末裁员不按劳动法给与补偿?](https://www.zhihu.com/question/317459683)  
 
 **2019**  
 [年度最惨员工新鲜出炉！新浪员工因加班错过10W美金年终奖！ ](http://www.sohu.com/a/289715764_120080726)  
@@ -73,4 +74,4 @@
 [美团3分钟裁掉应届生? 再见了, 校招时拼命3个月才挣来的工作... ](http://www.sohu.com/a/284610188_100011431)  
 [腾讯中层干部的“危机” ：10%要被裁撤！留下的也不是“终身制”](http://finance.sina.com.cn/roll/2019-03-19/doc-ihsxncvh3811147.shtml)  
 [3年被骗65万，IT男跳河自杀身亡！至死不知“网恋女友”是男人](https://mp.weixin.qq.com/s?src=11&timestamp=1554007299&ver=1517&signature=A0l2pb-9m1-rsAMwL-uqRUw-Mq222*Nz588qw1P1TtpOafPiNVcAyuwY-1tGfjQJswQ81KbTHJMqCD-AYlVjqsNgBL89HQHSpKajIe*tkxLXbpGLH49v4zqx23x4pfKB&new=1)  
-[如何看待2018哔哩哔哩年末裁员不按劳动法给与补偿?](https://www.zhihu.com/question/317459683)  
+
