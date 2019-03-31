@@ -3,17 +3,25 @@
 
 此 repo 主要记录发生在 IT 行业过的一些悲惨事件，`前人之鉴，后人之师`；希望 it 朋友们吸取前人教训，避免入坑！
 
-**与[programmer-job-blacklist](https://github.com/shengxinjing/programmer-job-blacklist)的区别？**
-此 repo 不但有公司霸凌员工这类悲惨事件记录，也有员工本身的悲剧，如：劳累猝死、因感情纠纷自杀、触犯法律入狱等，只要是 it 人的悲剧都会记录
+**与[programmer-job-blacklist](https://github.com/shengxinjing/programmer-job-blacklist)的区别？**  
+此 repo 不但有公司无视劳动法霸凌员工这类悲惨事件记录，也有员工本身的悲剧，如：劳累猝死、因感情纠纷自杀、触犯法律入狱等，只要是 it 人的悲剧都会记录
 
-**此 repo 的记录事件可靠吗？**
+**此 repo 的记录事件可靠吗？**  
 本 repo 只引用现有知名新闻网站的报导，不对内容真实性负责；对真实性有疑问的请找源头新闻网站
 
-**为什么按照时间顺序整理？**
+**为什么按照时间顺序整理？**  
 按照类型分类整理工作量大，我更倾向于《资治通鉴》这样编年体的记录方式，方便！
 
-**如何参与这个项目**
+**如何参与这个项目**  
 提 issue(建议注册小号)，附上相关新闻网站url
+
+**其他推荐项目**  
+[programmer-job-blacklist](https://github.com/shengxinjing/programmer-job-blacklist)  
+[996_list](https://github.com/fengT-T/996_list)  
+[996.ICU](https://github.com/996icu/996.ICU)  
+[955.WLB ](https://github.com/formulahendry/955.WLB)  
+[996.LAW ](https://github.com/Y1ran/996.Law)  
+[996.TSC ](https://github.com/lxlxw/996.TSC)  
 
 ## 正文
 **2008**  
