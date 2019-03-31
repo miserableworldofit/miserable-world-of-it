@@ -34,7 +34,7 @@
 [老员工从优酷离职：股票期权黄粱一梦 内部矛盾爆发](http://tech.ifeng.com/internet/detail_2013_12/25/32459665_0.shtml)  
 [如何评价阿里集团无线部门的「996」政策？](https://www.zhihu.com/question/22087717#answer-3304522)  
 
-**2014**
+**2014**  
 [华为海思高管猝死真相：奋斗者协议要求员工自愿加班](https://www.qianzhan.com/indynews/detail/242/140728-28c4c494.html)
 
 **2015**  
