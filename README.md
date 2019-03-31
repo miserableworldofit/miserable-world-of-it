@@ -50,6 +50,7 @@
 [ 互联网之殇——阿里数据总监欧吉良猝死引人深思 ](http://www.sohu.com/a/86969431_284545)  
 [为了挑战百度无人车安全性李彦宏让工程师拦车测试 ](http://www.sohu.com/a/119456122_136655)  
 [你如何看青云员工期权合同欺诈事件？](https://www.zhihu.com/question/47442360#answer-37922984)
+[ 34岁天涯论坛副主编金波猝死地铁，是否因为“经常熬夜”？ ](https://mp.weixin.qq.com/s?src=3&timestamp=1554032405&ver=1&signature=G03yHYTOGGeeqk0dUUzFdf5uTaRuzklY4c5kq6IaLVy56Zz-8gGrnujQ5SykwJUfAwYBVdss-gcXhl91P6FORwPxITyQ08546nBXhxliMHbWAHceYy7iqZNPhn3iJJfPhCZoGJlA9Aj0UyNzdFgsBSQLf0giDdj44NrD0q2UVQM=)
 
 
 **2017**  
