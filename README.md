@@ -1,7 +1,7 @@
 # miserable-world-of-it
 **it悲惨世界--记录 IT 圈的悲惨事件**
 
-此 repo 主要记录发生在 IT 行业过的一些悲惨事件，`前人之鉴，后人之师`；希望 it 朋友们吸取前人教训，避免入坑！
+此 repo 主要记录发生在 IT 行业过的一些悲惨事件，`前人之鉴，后人之师`；希望 it 朋友们吸取前人教训，提高自身经验！
 
 **与[programmer-job-blacklist](https://github.com/shengxinjing/programmer-job-blacklist)的区别？**  
 此 repo 不但有公司无视劳动法霸凌员工这类悲惨事件记录，也有员工本身的悲剧，如：劳累猝死、因感情纠纷自杀、触犯法律入狱等，只要是 it 人的悲剧都会记录
