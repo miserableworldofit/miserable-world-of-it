@@ -31,6 +31,9 @@
 **2011**  
 [百度员工猝死曾微博喊累 网友指其是"过劳死"](http://www.china.com.cn/economic/txt/2011-11/18/content_23950736.htm)
 
+**2012**
+[南京30多岁外企经理猝死 或因工作强度大](http://js.people.com.cn/html/2012/05/09/106849.html)
+
 **2013**  
 [老员工从优酷离职：股票期权黄粱一梦 内部矛盾爆发](http://tech.ifeng.com/internet/detail_2013_12/25/32459665_0.shtml)  
 [如何评价阿里集团无线部门的「996」政策？](https://www.zhihu.com/question/22087717#answer-3304522)  
