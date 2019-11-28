@@ -79,6 +79,7 @@
 [滴滴年终奖减半后又裁员？该来的还是来了，员工一片叫苦 ](http://www.sohu.com/a/287260506_100127084)  
 [京东证实高管层将裁员10% 中基层裁员或难免 ](http://www.sohu.com/a/295722506_115565?sec=wd)  
 [春节前夕被裁员，年终奖也没了，网易员工在脉脉上“狂吐槽” ](http://www.sohu.com/a/293153248_624619)  
+[在明确表示要淘汰这三类人之后，京东竟然连快递员底薪都取消了](http://dy.163.com/v2/article/detail/EC8PVKT00524V8SH.html)
 [美团3分钟裁掉应届生? 再见了, 校招时拼命3个月才挣来的工作... ](http://www.sohu.com/a/284610188_100011431)  
 [腾讯中层干部的“危机” ：10%要被裁撤！留下的也不是“终身制”](http://finance.sina.com.cn/roll/2019-03-19/doc-ihsxncvh3811147.shtml)  
 [3年被骗65万，IT男跳河自杀身亡！至死不知“网恋女友”是男人](https://mp.weixin.qq.com/s?src=11&timestamp=1554007299&ver=1517&signature=A0l2pb-9m1-rsAMwL-uqRUw-Mq222*Nz588qw1P1TtpOafPiNVcAyuwY-1tGfjQJswQ81KbTHJMqCD-AYlVjqsNgBL89HQHSpKajIe*tkxLXbpGLH49v4zqx23x4pfKB&new=1)  
