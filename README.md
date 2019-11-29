@@ -93,4 +93,5 @@
 [网易员工得绝症后竟遭公司裁员：“自己不走就让保安赶你走！” ](https://www.sohu.com/a/356730964_120078316)  
 [如何看待网传华为员工李某元离职后被公司起诉敲诈勒索，羁押 251 天后因证据不足重获自由？](https://www.zhihu.com/question/358237309)  
 [网易又一员工被逼离职：因跟主管争吵被劝退 不给补偿还被启动竞业](http://www.techweb.com.cn/it/2019-11-28/2766431.shtml)  
+[西安软通动力32岁员工加班过劳猝死，家属索赔无果](https://mp.weixin.qq.com/s?src=11&timestamp=1575021147&ver=2004&signature=VyP986QgOQoV4zaVw4IlmvfmekAEa5SWKa55Jl5XuCN915ERKV2f1bXtBNO4CW0NhAhFJykcZfJ7GvP-C4JE1u0UJMzKpdFGmCiGc3fwqZMu893VIr5Ye9sqAy7*114H&new=1)
 
