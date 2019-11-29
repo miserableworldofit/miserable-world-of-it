@@ -33,6 +33,7 @@
 
 **2012**  
 [南京30多岁外企经理猝死 或因工作强度大](http://js.people.com.cn/html/2012/05/09/106849.html)
+[留美博士知名外企首席工程师王庆根为什么会自杀？](http://health.zjol.com.cn/05zjhealth/system/2012/04/28/018452618.shtml?bsh_bid=91688775)
 
 **2013**  
 [老员工从优酷离职：股票期权黄粱一梦 内部矛盾爆发](http://tech.ifeng.com/internet/detail_2013_12/25/32459665_0.shtml)  
@@ -85,6 +86,8 @@
 [腾讯中层干部的“危机” ：10%要被裁撤！留下的也不是“终身制”](http://finance.sina.com.cn/roll/2019-03-19/doc-ihsxncvh3811147.shtml)  
 [3年被骗65万，IT男跳河自杀身亡！至死不知“网恋女友”是男人](https://mp.weixin.qq.com/s?src=11&timestamp=1554007299&ver=1517&signature=A0l2pb-9m1-rsAMwL-uqRUw-Mq222*Nz588qw1P1TtpOafPiNVcAyuwY-1tGfjQJswQ81KbTHJMqCD-AYlVjqsNgBL89HQHSpKajIe*tkxLXbpGLH49v4zqx23x4pfKB&new=1)  
 [马云：能够996是修来的福报 阿里不缺上班很舒服的人](https://t.cj.sina.com.cn/articles/view/1914880192/7222c0c002000k33r)
+[38岁浙大学霸Facebook总部跳楼自杀：经常加班到夜里一两点，曾与上司发生争吵](http://www.nbd.com.cn/articles/2019-09-29/1375400.html)
+[为Facebook跳楼华人同事发声被开除 当事人现身回应](https://www.cnbeta.com/articles/tech/897527.htm)
 [华为12年老员工郑会兰因孕期被“主动离职”](https://www.acfun.cn/a/ac11671748)
 [华为HR实名控诉：研发加班却被说不努力](https://www.sohu.com/a/352502830_120372431)  
 [网易员工得绝症后竟遭公司裁员：“自己不走就让保安赶你走！” ](https://www.sohu.com/a/356730964_120078316)  
