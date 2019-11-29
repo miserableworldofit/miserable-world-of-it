@@ -32,7 +32,7 @@
 [百度员工猝死曾微博喊累 网友指其是"过劳死"](http://www.china.com.cn/economic/txt/2011-11/18/content_23950736.htm)
 
 **2012**  
-[南京30多岁外企经理猝死 或因工作强度大](http://js.people.com.cn/html/2012/05/09/106849.html)
+[南京30多岁外企经理猝死 或因工作强度大](http://js.people.com.cn/html/2012/05/09/106849.html)  
 [留美博士知名外企首席工程师王庆根为什么会自杀？](http://health.zjol.com.cn/05zjhealth/system/2012/04/28/018452618.shtml?bsh_bid=91688775)
 
 **2013**  
@@ -75,22 +75,22 @@
 **2019**  
 [年度最惨员工新鲜出炉！新浪员工因加班错过10W美金年终奖！ ](http://www.sohu.com/a/289715764_120080726)  
 [华为肯尼亚员工猝死 22个月无休，患高血压仍在加班 ](http://www.sohu.com/a/285269820_466836)  
-[便利蜂裁员出新招：让员工参加数学考试](http://www.linkshop.com.cn/web/archives/2019/418488.shtml)
+[便利蜂裁员出新招：让员工参加数学考试](http://www.linkshop.com.cn/web/archives/2019/418488.shtml)  
 [有赞年会996制，”鼓励”员工离婚？官方这样回应！](http://www.sohu.com/a/292002668_100086737)  
 [京东回应“ 955 工作制”：不强制，但要全情投入](http://www.sohu.com/a/300803648_100191055)  
 [滴滴年终奖减半后又裁员？该来的还是来了，员工一片叫苦 ](http://www.sohu.com/a/287260506_100127084)  
 [京东证实高管层将裁员10% 中基层裁员或难免 ](http://www.sohu.com/a/295722506_115565?sec=wd)  
 [春节前夕被裁员，年终奖也没了，网易员工在脉脉上“狂吐槽” ](http://www.sohu.com/a/293153248_624619)  
-[在明确表示要淘汰这三类人之后，京东竟然连快递员底薪都取消了](http://dy.163.com/v2/article/detail/EC8PVKT00524V8SH.html)
+[在明确表示要淘汰这三类人之后，京东竟然连快递员底薪都取消了](http://dy.163.com/v2/article/detail/EC8PVKT00524V8SH.html)  
 [美团3分钟裁掉应届生? 再见了, 校招时拼命3个月才挣来的工作... ](http://www.sohu.com/a/284610188_100011431)  
 [腾讯中层干部的“危机” ：10%要被裁撤！留下的也不是“终身制”](http://finance.sina.com.cn/roll/2019-03-19/doc-ihsxncvh3811147.shtml)  
 [3年被骗65万，IT男跳河自杀身亡！至死不知“网恋女友”是男人](https://mp.weixin.qq.com/s?src=11&timestamp=1554007299&ver=1517&signature=A0l2pb-9m1-rsAMwL-uqRUw-Mq222*Nz588qw1P1TtpOafPiNVcAyuwY-1tGfjQJswQ81KbTHJMqCD-AYlVjqsNgBL89HQHSpKajIe*tkxLXbpGLH49v4zqx23x4pfKB&new=1)  
-[马云：能够996是修来的福报 阿里不缺上班很舒服的人](https://t.cj.sina.com.cn/articles/view/1914880192/7222c0c002000k33r)
-[38岁浙大学霸Facebook总部跳楼自杀：经常加班到夜里一两点，曾与上司发生争吵](http://www.nbd.com.cn/articles/2019-09-29/1375400.html)
-[为Facebook跳楼华人同事发声被开除 当事人现身回应](https://www.cnbeta.com/articles/tech/897527.htm)
-[华为12年老员工郑会兰因孕期被“主动离职”](https://www.acfun.cn/a/ac11671748)
+[马云：能够996是修来的福报 阿里不缺上班很舒服的人](https://t.cj.sina.com.cn/articles/view/1914880192/7222c0c002000k33r)  
+[38岁浙大学霸Facebook总部跳楼自杀：经常加班到夜里一两点，曾与上司发生争吵](http://www.nbd.com.cn/articles/2019-09-29/1375400.html)  
+[为Facebook跳楼华人同事发声被开除 当事人现身回应](https://www.cnbeta.com/articles/tech/897527.htm)  
+[华为12年老员工郑会兰因孕期被“主动离职”](https://www.acfun.cn/a/ac11671748)  
 [华为HR实名控诉：研发加班却被说不努力](https://www.sohu.com/a/352502830_120372431)  
 [网易员工得绝症后竟遭公司裁员：“自己不走就让保安赶你走！” ](https://www.sohu.com/a/356730964_120078316)  
 [如何看待网传华为员工李某元离职后被公司起诉敲诈勒索，羁押 251 天后因证据不足重获自由？](https://www.zhihu.com/question/358237309)  
-[网易又一员工被逼离职：因跟主管争吵被劝退 不给补偿还被启动竞业](http://www.techweb.com.cn/it/2019-11-28/2766431.shtml)
+[网易又一员工被逼离职：因跟主管争吵被劝退 不给补偿还被启动竞业](http://www.techweb.com.cn/it/2019-11-28/2766431.shtml)  
 
