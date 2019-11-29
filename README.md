@@ -55,6 +55,7 @@
 [为了挑战百度无人车安全性李彦宏让工程师拦车测试 ](http://www.sohu.com/a/119456122_136655)  
 [你如何看青云员工期权合同欺诈事件？](https://www.zhihu.com/question/47442360#answer-37922984)  
 [ 34岁天涯论坛副主编金波猝死地铁，是否因为“经常熬夜”？ ](https://mp.weixin.qq.com/s?src=3&timestamp=1554032405&ver=1&signature=G03yHYTOGGeeqk0dUUzFdf5uTaRuzklY4c5kq6IaLVy56Zz-8gGrnujQ5SykwJUfAwYBVdss-gcXhl91P6FORwPxITyQ08546nBXhxliMHbWAHceYy7iqZNPhn3iJJfPhCZoGJlA9Aj0UyNzdFgsBSQLf0giDdj44NrD0q2UVQM=)  
+[如何看待TP-LINK高薪招收应届生的同时裁掉老员工？](https://www.zhihu.com/question/52293685)
 
 
 **2017**  
@@ -83,6 +84,8 @@
 [美团3分钟裁掉应届生? 再见了, 校招时拼命3个月才挣来的工作... ](http://www.sohu.com/a/284610188_100011431)  
 [腾讯中层干部的“危机” ：10%要被裁撤！留下的也不是“终身制”](http://finance.sina.com.cn/roll/2019-03-19/doc-ihsxncvh3811147.shtml)  
 [3年被骗65万，IT男跳河自杀身亡！至死不知“网恋女友”是男人](https://mp.weixin.qq.com/s?src=11&timestamp=1554007299&ver=1517&signature=A0l2pb-9m1-rsAMwL-uqRUw-Mq222*Nz588qw1P1TtpOafPiNVcAyuwY-1tGfjQJswQ81KbTHJMqCD-AYlVjqsNgBL89HQHSpKajIe*tkxLXbpGLH49v4zqx23x4pfKB&new=1)  
+[马云：能够996是修来的福报 阿里不缺上班很舒服的人](https://t.cj.sina.com.cn/articles/view/1914880192/7222c0c002000k33r)
+[华为12年老员工郑会兰因孕期被“主动离职”](https://www.acfun.cn/a/ac11671748)
 [华为HR实名控诉：研发加班却被说不努力](https://www.sohu.com/a/352502830_120372431)  
 [网易员工得绝症后竟遭公司裁员：“自己不走就让保安赶你走！” ](https://www.sohu.com/a/356730964_120078316)  
 [如何看待网传华为员工李某元离职后被公司起诉敲诈勒索，羁押 251 天后因证据不足重获自由？](https://www.zhihu.com/question/358237309)  
