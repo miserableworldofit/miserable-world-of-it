@@ -89,6 +89,7 @@
 [38岁浙大学霸Facebook总部跳楼自杀：经常加班到夜里一两点，曾与上司发生争吵](http://www.nbd.com.cn/articles/2019-09-29/1375400.html)  
 [为Facebook跳楼华人同事发声被开除 当事人现身回应](https://www.cnbeta.com/articles/tech/897527.htm)  
 [华为12年老员工郑会兰因孕期被“主动离职”](https://www.acfun.cn/a/ac11671748)  
+[阿里要求P8级别尽快实现全员35周岁？官方：假的](https://news.mydrivers.com/1/653/653896.htm)
 [华为HR实名控诉：研发加班却被说不努力](https://www.sohu.com/a/352502830_120372431)  
 [网易员工得绝症后竟遭公司裁员：“自己不走就让保安赶你走！” ](https://www.sohu.com/a/356730964_120078316)  
 [如何看待网传华为员工李某元离职后被公司起诉敲诈勒索，羁押 251 天后因证据不足重获自由？](https://www.zhihu.com/question/358237309)  
