@@ -97,5 +97,5 @@
 [西安软通动力32岁员工加班过劳猝死，家属索赔无果](https://mp.weixin.qq.com/s?src=11&timestamp=1575021147&ver=2004&signature=VyP986QgOQoV4zaVw4IlmvfmekAEa5SWKa55Jl5XuCN915ERKV2f1bXtBNO4CW0NhAhFJykcZfJ7GvP-C4JE1u0UJMzKpdFGmCiGc3fwqZMu893VIr5Ye9sqAy7*114H&new=1)  
 [阿里十年996是个什么结局?](https://zhuanlan.zhihu.com/p/62782492)  
 [市值4万亿阿里给我寄来漏洞百出的离职证明](https://zhuanlan.zhihu.com/p/94030876)  
-[工号105751实名投诉阿里巴巴，终于我被你们逼死了](http://www.sohu.com/a/118611001_509302)
-
+[工号105751实名投诉阿里巴巴，终于我被你们逼死了](http://www.sohu.com/a/118611001_509302)  
+[专访华为前员工：不止李洪元，我也曾因离职赔偿被羁押90天](https://mbd.baidu.com/newspage/data/landingshare?pageType=1&isBdboxFrom=1&context={%22nid%22:%22news_9165708699079471419%22})
