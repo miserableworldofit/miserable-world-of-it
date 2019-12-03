@@ -25,6 +25,8 @@
 [1075work](https://github.com/bj4096/1075work)  
 
 ## 正文
+**2004**  
+[华为公司前员工被拘事件始末](http://it.sohu.com/20041117/n223028019.shtml)  
 **2008**  
 [第37位!华为成都再有员工跳楼自杀身亡](http://www.xker.com/page/e2008/0226/50010.html)  
 
