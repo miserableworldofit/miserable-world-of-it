@@ -106,5 +106,8 @@
 [专访华为前员工：不止李洪元，我也曾因离职赔偿被羁押90天](https://mbd.baidu.com/newspage/data/landingshare?pageType=1&isBdboxFrom=1&context={%22nid%22:%22news_9165708699079471419%22})  
 [生鲜电商呆萝卜公司杭州中心人去楼空 员工欠薪2个月](http://www.linkshop.com.cn/web/archives/2019/436945.shtml)  
 [员工称加班生病被关"小黑屋" 完美世界:已解除合同](https://money.163.com/19/1217/08/F0J8F6FV00258105.html)  
-[网易又一员工被辞退，因竞业协议生活陷入困境](https://k.sina.com.cn/article_6444474583_1801ee0d700100ii5w.html)
+[网易又一员工被辞退，因竞业协议生活陷入困境](https://k.sina.com.cn/article_6444474583_1801ee0d700100ii5w.html)  
+[海康威视一员工跳楼身亡 通报称系自杀或为抑郁所致](https://tech.sina.com.cn/roll/2019-12-30/doc-iihnzahk0960819.shtml)  
+[我在腾讯工作7年，hr在工位装了摄像头后，把我开除了... ](http://www.sohu.com/a/339792898_816179)    
+
 
