@@ -111,6 +111,8 @@
 [我在腾讯工作7年，hr在工位装了摄像头后，把我开除了... ](http://www.sohu.com/a/339792898_816179)    
 
 **2020**  
+[如何评价拼多多招聘java工程师超过33岁就不要了？](https://www.zhihu.com/question/382422954)  
+[如何看待拼多多要求 1月31 号上班?](https://www.zhihu.com/question/368158491)  
 [马云愿望“火了”被质疑是裁员：每年向社会输出1千名工作10年以上阿里人](https://new.qq.com/omn/20200106/20200106A00NBC00.html)  
 [360回应年会“免裁券”：没有裁员计划](https://www.ithome.com/0/467/458.htm)  
 [搜狐张朝阳回应员工迟到一次罚500元：资本家就得剥削员工](http://www.linkshop.com.cn/web/archives/2020/439298.shtml)  
