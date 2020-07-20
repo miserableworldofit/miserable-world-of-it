@@ -114,4 +114,11 @@
 [马云愿望“火了”被质疑是裁员：每年向社会输出1千名工作10年以上阿里人](https://new.qq.com/omn/20200106/20200106A00NBC00.html)  
 [360回应年会“免裁券”：没有裁员计划](https://www.ithome.com/0/467/458.htm)  
 [搜狐张朝阳回应员工迟到一次罚500元：资本家就得剥削员工](http://www.linkshop.com.cn/web/archives/2020/439298.shtml)  
+[如何看待中兴通讯复工后强制周六加班？](https://www.zhihu.com/question/382596600)    
+[腾讯员工因每天在岗不足8小时被辞 反诉加班费等500余万两度败诉](https://finance.sina.com.cn/chanjing/gsnews/2020-07-15/doc-iivhvpwx5476097.shtml)  
+[如何看待wps双休改单休？](https://www.zhihu.com/question/395168826)  
+[怎么看待国美在线强制员工每天工作12小时，无理擅自扣员工30%工资！?](https://www.zhihu.com/question/397845282)  
+[如何看待海淀某互联网公司鼓励员工尽量住在公司?](https://www.zhihu.com/question/407829485/answer/1349225996)  
+
+
 
