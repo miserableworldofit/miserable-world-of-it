@@ -121,6 +121,7 @@
 [如何看待wps双休改单休？](https://www.zhihu.com/question/395168826)  
 [怎么看待国美在线强制员工每天工作12小时，无理擅自扣员工30%工资！?](https://www.zhihu.com/question/397845282)  
 [如何看待海淀某互联网公司鼓励员工尽量住在公司?](https://www.zhihu.com/question/407829485/answer/1349225996)  
+[成都天府软件园程序员跳楼身亡，跳楼原因复杂？](https://xw.qq.com/cmsid/20200722A0WLQJ00)  
 
 
 
