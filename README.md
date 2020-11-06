@@ -127,5 +127,6 @@
 [拼多多员工曝离职黑幕：要走可以，要离职证明，没有！](https://www.ershicimi.com/p/af0757ef18edd22aaeda3f07993a27bb)  
 [如何评价华为不服劳动仲裁委员会要求在哺乳期给孕妇赵文婵补发2万绩效工资，将赵文婵告上法庭？](https://www.zhihu.com/question/419338597)  
 [如何看待网传拼多多将开启月双休模式？](https://www.zhihu.com/question/424916186)  
-[前员工诉华为劳动争议案再审维持二审判决，“奋斗者承诺书”有效](https://www.sohu.com/a/426678324_260616)      
+[前员工诉华为劳动争议案再审维持二审判决，“奋斗者承诺书”有效](https://www.sohu.com/a/426678324_260616)     
+[广州多益网络允许员工自愿降低待遇10%?](https://dy.163.com/article/FQN8B0RN0544HNI8.html)  
 
